@@ -1,1 +1,2 @@
 # Issuing-a-code-of-ethics
+The codes of ethics issued by the Ethics Committee of the Scientific Association for Environmental Education and Sustainable Development are included in this list. The archive number of the codes of ethics in this list is registered in the association's office. And each code of ethics issued is valid for two years. Based on this list, applicants are issued with a code of ethics certificate. Certificates that do not have the association's hologram and the association's embossed seal are invalid.
