@@ -8,6 +8,7 @@ Issued Ethical Codes:
 This code indicates that the researchs titled below has been conducted in accordance with accepted international and national standards, adhering to the principles of ethical treatment of animals and the preservation of habitats and the environment.
 Codes issued in the past:
 Note: These codes were issued when the association's website was on the Shahid Rajaee Teacher Training University website, which was moved here from that site. In order to preserve the right of the issuers to view and search for the codes, these codes are provided here online.
+
 1- Effect of hydrogel containing Chelidonium majus hydroalcoholic Extract on wound healing By : mostafa mojtahedzadeh farabi
                   MRST- CSA- EEDS- 14004472758-EC- 21
 
