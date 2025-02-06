@@ -28,10 +28,10 @@ https://www.avma.org/sites/default/files/2020-02/Guidelines-on-Euthanasia-2020.p
 
 https://grants.nih.gov/grants/guide/notice-files/NOT-OD-05-034.html
 
-https://www.asas.org/docs/default-source/default-document-library/ag_guide_3rded.pdf?sfvrsn=4
-
+https://www.asas.org/
 
 Codes issued in the past:
+
 Note: These codes were issued when the association's website was on the Shahid Rajaee Teacher Training University website, which was moved here from that site. In order to preserve the right of the issuers to view and search for the codes, these codes are provided here online.
 
 1- Effect of hydrogel containing Chelidonium majus hydroalcoholic Extract on wound healing By : mostafa mojtahedzadeh farabi
