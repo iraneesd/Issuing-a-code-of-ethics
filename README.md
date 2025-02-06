@@ -28,8 +28,9 @@ https://www.avma.org/sites/default/files/2020-02/Guidelines-on-Euthanasia-2020.p
 
 https://grants.nih.gov/grants/guide/notice-files/NOT-OD-05-034.html
 
-https://www.asas.org/
-https://www.ekhtebar.ir/%D9%84%D8%A7%DB%8C%D8%AD%D9%87-%D8%AD%D9%85%D8%A7%DB%8C%D8%AA-%D8%A7%D8%B2-%D8%AD%DB%8C%D9%88%D8%A7%D9%86%D8%A7%D8%AA/
+https://www.asas.org
+
+https://github.com/iraneesd/Animal-Protection-Bill/blob/prospect/README.md
 
 Codes issued in the past:
 
